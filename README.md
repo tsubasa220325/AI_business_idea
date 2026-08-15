@@ -1,1 +1,0 @@
-# AI_business_idea
